@@ -2,7 +2,7 @@
 
 > **Secure, seamless payments with Pesapal — built for speed, style, and simplicity.**
 
-![Pesapal](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6c/Pesapal_logo.png/320px-Pesapal_logo.png)
+![Pesapal](https://i.ibb.co/qfbjHYK/Whats-App-Image-2025-06-30-at-3-43-38-PM.jpg)
 
 ---
 
